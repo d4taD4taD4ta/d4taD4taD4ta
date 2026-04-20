@@ -1,13 +1,13 @@
 <div align="center">
-d4ta / meo , he/they>any 
+d4ta⠀  /⠀  meo⠀  ⠀  he⠀  /⠀  they⠀  >⠀  any 
 </div>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <div align="center">
-transguy pan , taken
+transguy⠀  pan⠀  ⠀  taken
 </div>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <div align="center">
-masc/neutral terms
+masc⠀  /⠀  neutral⠀  terms
 </div>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
@@ -62,7 +62,7 @@ masc/neutral terms
 <div align="center">
   <details>
 
-<summary> DNI/THIN ICE </summary>
+<summary> DNI⠀  /⠀  THIN⠀  ICE </summary>
 
 1. working on it 
 2. wip
