@@ -1,4 +1,10 @@
 <div align="center">
+
+<img width="735" height="459" alt="image" src="https://github.com/user-attachments/assets/4a0ae8f5-e149-443e-bd8d-412fac6522b8" />
+
+</div>
+
+<div align="center">
 d4ta⠀  /⠀  meo⠀  ⠀  he⠀  /⠀  they⠀  >⠀  any 
 </div>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
@@ -13,8 +19,6 @@ masc⠀  /⠀  neutral⠀  terms
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.sh/github.com/meokas.svg?style=plastic&label=meows&extraCount=928&color=ff007c&labelColor=faf7f7)](https://hits.sh/github.com/meokas/)
-
-<img width="735" height="459" alt="image" src="https://github.com/user-attachments/assets/4a0ae8f5-e149-443e-bd8d-412fac6522b8" />
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
@@ -55,17 +59,6 @@ masc⠀  /⠀  neutral⠀  terms
 
 1. tags --> https://ponytown.fandom.com/wiki/Name_Tag_Dictionary
 1. working
-
-</details>
-</div>
-
-<div align="center">
-  <details>
-
-<summary> DNI⠀  /⠀  THIN⠀  ICE </summary>
-
-1. working on it 
-2. wip
 
 </details>
 </div>
