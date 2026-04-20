@@ -5,7 +5,7 @@ D4ta / Meo
 He/they>Any . Transguy Pan
 </div>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.sh/github.com/meokas.svg?style=plastic&label=meows&extraCount=928&color=ff007c&labelColor=faf7f7)](https://hits.sh/github.com/meokas/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.sh/github.com/meokas.svg?style=plastic&label=meows&extraCount=928&color=ff007c&labelColor=faf7f7)](https://hits.sh/github.com/meokas/)
 
 <img width="735" height="459" alt="image" src="https://github.com/user-attachments/assets/4a0ae8f5-e149-443e-bd8d-412fac6522b8" />
 
@@ -15,7 +15,7 @@ He/they>Any . Transguy Pan
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=50&color=000000&background=FF008B&center=true&multiline=true&width=550&height=150&lines=BECAUSE+MAYBEEEEEEEEEEEEEEEEEEE;UR+GONNA+B+THE+1+THAT+SAVES+MEEEEEEEEEEEEEEE;%26%26+AFTER+ALLLLLLLLLLLLLLLL....;UR+MY+WONDERWALLLL!!!!!!+0W0;Sinisterrrrrrrr+-+Renard)](https://git.io/typing-svg)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![hypno](https://pixelsafari.neocities.org/stamps/hypno.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![hypno](https://pixelsafari.neocities.org/stamps/hypno.gif)
 
 ---
 
