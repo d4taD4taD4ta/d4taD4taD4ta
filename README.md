@@ -73,6 +73,6 @@ masc⠀  /⠀  neutral⠀  terms
 
 <div align="center">
 
-  oh and [this](https://github.com/d4taMeo) is also me ig dont follow that acc pls?
+  !
 
 </div>
