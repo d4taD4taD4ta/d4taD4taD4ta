@@ -46,18 +46,7 @@ masc⠀  /⠀  neutral⠀  terms
 </details>
 </div>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-<div align="center">
-
-![hypno](https://pixelsafari.neocities.org/stamps/hypno.gif)
-
-</div>
-
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-<img width="735" height="459" alt="image" src="https://github.com/user-attachments/assets/830018f1-26a9-4e89-9e58-182247f150c1" />
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <div align="center">
   <details>
@@ -68,4 +57,22 @@ masc⠀  /⠀  neutral⠀  terms
 1. working
 
 </details>
+</div>
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+
+<div align="center">
+
+![hypno](https://pixelsafari.neocities.org/stamps/hypno.gif)
+
+</div>
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+<div align="center">
+
+<img width="735" height="459" alt="image" src="https://github.com/user-attachments/assets/830018f1-26a9-4e89-9e58-182247f150c1" />
+
 </div>
