@@ -1,11 +1,13 @@
 <div align="center">
-D4ta / Meo
+d4ta / meo , he/they>any 
 </div>
+
 <div align="center">
-He/they>Any . Transguy Pan
+transguy pan , taken
 </div>
+
 <div align="center">
-Masc/neutral terms
+masc/neutral terms
 </div>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.sh/github.com/meokas.svg?style=plastic&label=meows&extraCount=928&color=ff007c&labelColor=faf7f7)](https://hits.sh/github.com/meokas/)
