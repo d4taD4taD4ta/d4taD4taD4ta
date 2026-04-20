@@ -57,21 +57,7 @@ masc⠀  /⠀  neutral⠀  terms
 
 <img width="735" height="459" alt="image" src="https://github.com/user-attachments/assets/830018f1-26a9-4e89-9e58-182247f150c1" />
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-<div align="center">
-  <details>
-
-<summary> byi ; </summary>
-
-1. i am suspected of having MDD&ADHD. I do not self-diagnose myself with those disorders but please beware before u int
-3. Ihave Severe mood swings that i dont control
-2. i am not currently being helped by a specialist so my condition has been getting worse and worse
-2. I may come off as rude and aggressive a lot o f timesImso0rry
-3. this is a very verynot finished byi but a short importantthings one
-
-</details>
-</div>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <div align="center">
   <details>
