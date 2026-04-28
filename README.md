@@ -15,7 +15,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <div align="center">
-d4ta⠀  /⠀  meo⠀  ⠀  he⠀  /⠀  they⠀  >⠀  any 
+data⠀  .⠀  meo 4 friends only⠀  ⠀  he⠀  /⠀  they⠀  >⠀  any 
 </div>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <div align="center">
@@ -49,13 +49,18 @@ masc⠀  /⠀  neutral⠀  terms
 <div align="center">
   <details>
 
-<summary> byi ; </summary>
+<summary> byi⠀  ↓⠀  </summary>
 
-1. i am suspected of having MDD&ADHD. I do not self-diagnose myself with those disorders but please beware before u int
-3. Ihave Severe mood swings that i dont control
-2. i am not currently being helped by a specialist so my condition has been getting worse and worse
-2. I may come off as rude and aggressive a lot o f timesImso0rry
-3. this is a very verynot finished byi but a short importantthings one
+1. I am suspected of having MDD&ADHD. I do not self-diagnose myself with those disorders but please beware before u int
+3. I have Severe mood swings that i dont control
+2. me and my mental health are is not currently being treated by a specialist so my condition has been getting worse and worse
+2. I may come off as rude and aggressive a lot of times
+2. imm a really short tempered person with people that idk
+3. BAD MEMORY I DONT REMEMBER A LOT
+4. i can be super defensive(and aggressive in return) about anything if it looks to me like someone is blaming me/aggressive to me
+5. i use typing quirks!!!!!!!!! boo scary!!!!!! 
+6. i can be super awkward because i have no sense of sociali3ation 
+7. uhh might add something else later
 
 </details>
 </div>
@@ -65,7 +70,7 @@ masc⠀  /⠀  neutral⠀  terms
 <div align="center">
   <details>
 
-<summary> ponytown ; </summary>
+<summary> ponytown⠀  ↓⠀  </summary>
 
 1. tags --> https://ponytown.fandom.com/wiki/Name_Tag_Dictionary
 1. working
