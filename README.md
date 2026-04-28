@@ -74,8 +74,11 @@ masc⠀  /⠀  neutral⠀  terms
 
 1. tags --> https://ponytown.fandom.com/wiki/Name_Tag_Dictionary ++ (by close i mean my friends/my partner)
 1. ONLY w2i preferred unless actively moving / texting , always iwecare/iwecaution unless we're close , cover discomfort unless we're close
-2. dnc in my name ALWAYS means do not **cover**
-3. wip
+2. im usually offtab/away from my pc so please do whisper when interacting i will not see ur msgs if its not in whisper
+2. dnc in my pony's name always means **Do Not Cover** , i dislike being covered any time even if not stated in name UNLESS im c+h-ing with my friends/partner
+3. ask to c+h unless im sitting w/ my friends/partner
+4. ask 4 any inspo , no heavy inspo/copying,, , i dont mind friends taknig inspo!
+5. i block freely. i dont hide fully&permanently so i wont cover you n vice versa
 
 </details>
 </div>
