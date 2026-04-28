@@ -34,7 +34,7 @@ masc⠀  /⠀  neutral⠀  terms
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.sh/github.com/meokas.svg?style=plastic&label=meows&extraCount=928&color=ff0053&labelColor=afff00)](https://hits.sh/github.com/meokas/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.sh/github.com/meokas.svg?style=plastic&label=meows&extraCount=928&color=ff0053&labelColor=afff00)](https://hits.sh/github.com/meokas/)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
@@ -73,7 +73,8 @@ masc⠀  /⠀  neutral⠀  terms
 <summary> ponytown⠀  ↓⠀  </summary>
 
 1. tags --> https://ponytown.fandom.com/wiki/Name_Tag_Dictionary
-1. working
+1. w2i only preffered unless actively moving / texting , always iwecare/iwecaution unless we're close , cover discomfort
+2. working
 
 </details>
 </div>
