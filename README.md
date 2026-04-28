@@ -37,7 +37,9 @@ masc⠀  /⠀  neutral⠀  terms
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.sh/github.com/meokas.svg?style=plastic&label=meows&extraCount=928&color=ff0053&labelColor=afff00)](https://hits.sh/github.com/meokas/)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <div align="center">
-straw⠀  ←wip⠀  discord⠀:⠀  d4tameo
+
+  [straw](https://d4tad4tad4ta.straw.page)⠀  discord⠀:⠀d4tameo
+
 </div>
 
 
