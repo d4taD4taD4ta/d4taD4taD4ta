@@ -92,6 +92,6 @@ masc⠀  /⠀  neutral⠀  terms
 
 <div align="center">
 
-  !
+  
 
 </div>
