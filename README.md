@@ -72,9 +72,10 @@ masc⠀  /⠀  neutral⠀  terms
 
 <summary> ponytown⠀  ↓⠀  </summary>
 
-1. tags --> https://ponytown.fandom.com/wiki/Name_Tag_Dictionary
-1. w2i only preffered unless actively moving / texting , always iwecare/iwecaution unless we're close , cover discomfort
-2. working
+1. tags --> https://ponytown.fandom.com/wiki/Name_Tag_Dictionary ++ (by close i mean my friends/my partner)
+1. ONLY w2i preferred unless actively moving / texting , always iwecare/iwecaution unless we're close , cover discomfort unless we're close
+2. dnc in my name ALWAYS means do not **cover**
+3. wip
 
 </details>
 </div>
